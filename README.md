@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @emiliah3647
 - 👀 I’m interested in Drawing,anime,my ocs,what have you.
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning web design!
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
